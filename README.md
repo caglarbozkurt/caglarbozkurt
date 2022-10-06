@@ -1,5 +1,5 @@
 ### Hey 👋
-Çağlar here, amazed by the weird stuff people create on the internet daily. Currently working as a Growth PM at AMBOSS and enjoying the lovely weather in Berlin - which is something you don't hear a lot, especially in winter.
+Çağlar here, amazed by the weird stuff people create on the internet daily. Currently working as a Product Manager at GitHub and enjoying the okayish weather in Berlin - where it's not great in winter, but I can't say it's terrible _auch_.
 
 Here are some things that I'm currently looking into:
 
